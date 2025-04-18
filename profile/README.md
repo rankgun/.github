@@ -1,5 +1,5 @@
 
-![180WithText](https://github.com/user-attachments/assets/0bbb95ee-9975-4016-a241-40bdaa68ca5d)
+![RankGunDevsInfographic](https://github.com/user-attachments/assets/91a49e17-6493-4d02-b743-0295d947b3e4)
 
 ## Welcome
 
