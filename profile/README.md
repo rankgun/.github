@@ -1,4 +1,5 @@
-![RankGun Org Logo](https://github.com/user-attachments/assets/25e5797c-754b-4d94-a572-5dfa34b39cf0)
+
+![180WithText](https://github.com/user-attachments/assets/0bbb95ee-9975-4016-a241-40bdaa68ca5d)
 
 ## Welcome
 
